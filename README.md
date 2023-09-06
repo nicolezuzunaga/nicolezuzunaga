@@ -7,7 +7,7 @@
   
 - 👯 I’m looking to collaborate on projects related to Innovation and Technology.
 
-- 📫 How to reach me: zponce.nicole@gmail.com / [LinkedIn] (https://www.linkedin.com/in/nicolezuzunaga/)
+- 📫 How to reach me: zponce.nicole@gmail.com / LinkedIn: https://www.linkedin.com/in/nicolezuzunaga/
 
 - 😄 Pronouns: She/Her
 
