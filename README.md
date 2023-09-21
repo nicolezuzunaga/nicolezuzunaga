@@ -1,4 +1,4 @@
-### ¡Hello, world! 👋
+### Hello, world! 👋
 
 
 - 🔭 I’m an Industrial Engineering student interested in working on tech enterprises.
